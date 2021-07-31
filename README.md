@@ -1,6 +1,6 @@
 ## Nombre del autor : :sunglasses:
 
-# Hemerson Joao Heredia Ruiz :alien:
+# Emerson Joao Heredia Ruiz :alien:
 
 ![](https://avatars.githubusercontent.com/u/86270484?v=4)
 
